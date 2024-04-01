@@ -32,14 +32,14 @@ sᴏᴏɴ ᴀᴅᴅᴇᴅ ᴍᴏʀᴇ ᴅᴇᴛᴀɪʟs. ʙᴀʙᴇs🖤
 
 
 [![Telegram](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.me/ITS_CUTE_BABU)
-[![Instagram](https://img.shields.io/badge/-Instagram-E1306C?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/ITS_ME_ATOMIC)
+[![Instagram](https://img.shields.io/badge/-Instagram-E1306C?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/ITS_ME_ATOMIx)
 
 [![Youtube](https://img.shields.io/badge/-YouTube-F50909?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@SOON)
 
 
  <h3></h3>
 
-<a href="https://www.youtube.com/@shivanshudeo"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
+<a href="https://www.youtube.com/@soon"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
 </div>
 
